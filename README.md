@@ -1,0 +1,1 @@
+# Metode-selectiu-de-captura-docells
